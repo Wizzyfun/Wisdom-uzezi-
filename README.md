@@ -1,0 +1,2 @@
+# Wisdom-uzezi-
+Wisdom uzezi 
